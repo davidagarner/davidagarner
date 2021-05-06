@@ -1,5 +1,4 @@
-
-https://user-images.githubusercontent.com/78241661/117244067-6146d180-ae06-11eb-91dd-0461397b5b0c.mp4
+![Animated GIF-downsized](https://user-images.githubusercontent.com/78241661/117244258-b84ca680-ae06-11eb-9a07-d43a5d9c4fa2.gif)
 
 
 ### Hi there, I'm Davida - aka [the software engineer YOU need ][website] 👋
