@@ -1,4 +1,4 @@
-![Animated GIF-downsized](https://user-images.githubusercontent.com/78241661/117244258-b84ca680-ae06-11eb-9a07-d43a5d9c4fa2.gif)
+![Animated GIF-downsized (1)](https://user-images.githubusercontent.com/78241661/117244488-15e0f300-ae07-11eb-8017-c110b762c680.gif)
 
 
 ### Hi there, I'm Davida - aka [the software engineer YOU need ][website] 👋
