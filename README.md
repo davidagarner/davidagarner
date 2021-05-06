@@ -3,7 +3,7 @@
 ### Hi there, I'm Davida - aka [the software engineer YOU need ][website] 👋
 
 
-## I'm a Mother, Engineer, Community Activist, and Lover of Books!!
+## I'm a Veteran, Engineer, Community Activist, and Lover of Books!!
 
 
 - 🌱 I’m currently learning everything 🤣
