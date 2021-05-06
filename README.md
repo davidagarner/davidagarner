@@ -1,4 +1,6 @@
-![readMe](https://user-images.githubusercontent.com/78241661/117235134-25a30c00-adf4-11eb-9924-cfd4f0465e27.jpg)
+
+https://user-images.githubusercontent.com/78241661/117244067-6146d180-ae06-11eb-91dd-0461397b5b0c.mp4
+
 
 ### Hi there, I'm Davida - aka [the software engineer YOU need ][website] 👋
 
