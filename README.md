@@ -4,7 +4,7 @@
 ### Hi there, I'm Davida - aka [the software engineer YOU need ][website] 👋
 
 
-## I'm a Veteran, Engineer, Community Activist, and Lover of Books!!
+## I'm a Veteran, Engineer, Community Activist, and Lover of Documentaries!!
 
 
 - 🌱 I’m currently learning everything 🤣
